@@ -1,0 +1,1 @@
+# estes exercícios estão corrigidos
